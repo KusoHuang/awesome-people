@@ -12,3 +12,8 @@
 ## Clint
 
 * 7788 團員之一，首席魔法師大弟子
+
+## Kon Satoshi 今敏
+
+* 電影導演
+[Editing Space & Time](https://youtu.be/oz49vQwSoTE)
