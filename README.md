@@ -4,3 +4,7 @@
 ## shimon schocken
 
 * nand2tetris 作者之一，我認為是全世界最棒的計算機課程
+
+## Kuso
+
+* 7788 團員之一，首席魔法師 CMO
