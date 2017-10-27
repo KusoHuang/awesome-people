@@ -9,6 +9,10 @@
 
 * 7788 團員之一，首席魔法師 CMO
 
+## Clint
+
+* 7788 團員之一，首席魔法師大弟子
+
 ## Kon Satoshi 今敏
 
 * 電影導演
@@ -17,5 +21,4 @@
 ## Kobe Bryant
 
 * 神
-
-
+[Editing Space & Time](https://youtu.be/oz49vQwSoTE)
