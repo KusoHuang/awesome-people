@@ -13,3 +13,9 @@
 
 * 電影導演
 [Editing Space & Time](https://youtu.be/oz49vQwSoTE)
+
+## Kobe Bryant
+
+* 神
+
+
